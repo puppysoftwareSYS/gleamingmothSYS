@@ -1,4 +1,1 @@
-<p align="center"> my bpd causes a lot of identity disturbance/fragmentation. please refer to me as my pony or simply thorne. <br>https://rentry.co/hazardic <br><br> interests / fandoms <br> forsaken , regretevator , AVA/AVM , happy tree friends , south park , invader zim , eddsworld , ed edd n eddy </p>
-ART COMMISSIONS OPEN. https://thornecomms.carrd.co/
-<p align="center"> <img src="https://files.catbox.moe/dl38g6.png" width=170px height=170px> <br> art of zarzar my beloved OC <3 <br> i am pretty shy and will appreciate if you come up to me first! 
-<br> https://bsky.app/profile/thornebush.bsky.social </p>
+<p align="center"> GLEAMING MOTH SYS <br> ask prns -- refer to us as pony name <br> taken by dullmothsys <br> <img src='https://files.catbox.moe/xx9ktq.png' height='100' width='100'><br> '' monitoring you like machines do ''<br><br> thorne / fronter name<br><br> <a href='https://thornecomms.carrd.co/'> commissions </a> / <a href='https://bsky.app/profile/thornebush.bsky.social'> bluesky </a> <br><br> forsaken , regretevator , ava/avm , creepypasta , sprunki , south park , invader zim , moral orel , eddsworld , ed edd n eddy </p>
